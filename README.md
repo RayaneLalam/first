@@ -1,3 +1,3 @@
 # demo
 
-wassup G
+Assalamu 3alaykom Gs
